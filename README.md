@@ -1,2 +1,2 @@
 # Livegood-
-Shilajot
+Shilajit
